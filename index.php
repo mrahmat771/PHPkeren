@@ -3,3 +3,4 @@ tujuan tahun 2022 :
 2. beli iphone xr
 3. bisa dp rumah
 4. naik gaji
+5. glowing
